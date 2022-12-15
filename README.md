@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-### Youtube Channel: https://www.youtube.com/channel/UChvdEZeMyLPhZ0Jt_K3RCyQ
+### Youtube Channel: https://www.youtube.com/buggged
 
 #### Programmer & Tutor@Youtube
 
